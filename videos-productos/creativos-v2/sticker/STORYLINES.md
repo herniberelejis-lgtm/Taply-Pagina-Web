@@ -1,0 +1,2 @@
+Exploradas: reseña perdida entre notificaciones; tarjeta confundida con tarjeta de pago; viaje postal de una opinión; control de tránsito de clientes; reseña como objeto perdido.
+Elegidas: sticker = agujero negro de las reseñas, notificaciones absorbidas y acceso físico que corta el olvido. Tarjeta = no es para pagar, giro que revela su verdadera función y presentación junto a la cuenta. Alternativa descartada: viaje postal, requería metáfora larga antes de entender el producto.
